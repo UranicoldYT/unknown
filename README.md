@@ -5,7 +5,6 @@
 - **DATA DELETED - 03.29.2020 8:57AM**
 - You c4nt h1de, w3 w1ll f1nd y0u 3verywh3re...
 - C0llect the puzzl3s t0 ent3r the myst3ry
-
 -------------------
 <script src="//code.jivosite.com/widget/9Uv45a0yhr" async></script>
 <div class="powr-popup" id="30d8c36a_1583068508"></div><script src="https://www.powr.io/powr.js?platform=html"></script>
