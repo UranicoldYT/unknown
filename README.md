@@ -7,5 +7,5 @@
 - C0llect the puzzl3s t0 ent3r the myst3ry
 -------------------
 <script src="//code.jivosite.com/widget/9Uv45a0yhr" async></script>
-<div class="powr-notification-bar" id="95b366d7_1543744313"></div><script src="https://www.powr.io/powr.js?platform=html"></script>
+
 
