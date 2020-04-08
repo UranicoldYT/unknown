@@ -7,6 +7,8 @@
 - **DATA DELETED**
 - *I w1ll f1nd y0u* 04.07.2020
 ----------------------------------------------------
-### S3cr3ts.
-
+## Th3 Ch4llenge begun.
+### Pl4yers in th3 ch4llenge:
+#### Uranic0ld, S4fSn4kE.
+##### IP ADRESSES: Unknown
 
